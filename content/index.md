@@ -43,6 +43,7 @@ Meet some of my friends...
 - [Ivy Fan-Chiang](https://ivyfanchiang.ca/)
 - [Diana Lin](https://lindiana.ca/)
 - [Steven Guikal](https://fluix.one/)
+- [Celeste Luo](https://dulldesk.github.io/)
 - [Jacqueline Fung](https://www.jacquelinefung.live/)
 - [Anson Yu](https://ansonyu.me/)
 
