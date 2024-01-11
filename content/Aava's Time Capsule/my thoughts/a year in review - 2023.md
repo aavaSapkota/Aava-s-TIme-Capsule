@@ -2,7 +2,7 @@ I was feeling inspired by [Rebecca’s End of year review](https://rebeccalai.su
  
 As the year comes to an end, I think it’s important to reflect on the wins, losses, and moments in between. Given the state of the world, and my own recent battle with seasonal apathy, ending this year feels somewhat grim, but I am determined to push myself to pursue new thought cycles of optimism in the new year. Now that I’m turning 20 in March, I want to dive into the ice water of uncertainty headfirst, because as the buffalo know, the quickest way through the storm, is to run towards it. In this spirit, here are my wins, losses, and moments in between of this year: 
 
-Wins: 
+## Wins: 
 - I learned and arranged a choreography based on these two dances ([1](https://youtu.be/rCFEvVS9S9k?si=P5V006ac-qNDsiC4) and [2](https://youtu.be/eq5mbWgrA7g?si=EaBh1EFyV3_ETsap))  to perform at Sushim’s Barthabanda! Practiced for a month and did well at the performance, yay! Here is the video: ____
 - Finally finished Atomic Habits, They both Die at the end, and read Kaikeyi, enjoyed the books. List of my reviews ____
 - Finished my first and second co-op with Excellent ratings!
@@ -17,7 +17,7 @@ Wins: 
 - Continued working on Navcare, and got in contact with Aman from Gotcare!! 
 - Running again for the first time outside in forever!! + making a Strava account 
 
-Losses: 
+## Losses: 
 - Did not prioritize fitness and health 
 - Burnt out beginning of Fall term, and kind of messed up a lot of progress I could have made during my co-op term that I wanted to make 
 - Did not meal prep once this past fall term 😬
@@ -34,7 +34,7 @@ Losses: 
 - Sorta forgot how to meditate? Was not able to experience the same peaceful feeling I got in past years and sessions
 - Did not start my personal website   
 
-Moments In Between:
+## Moments In Between:
 - Went on a Hack the North retreat trip and had soooo much fun!!! 
 - Went to the Casino for the first time, and came out positive!! (Thank you Lam 🙏)
 - Made 700 momos with my mom and dad when they came up to waterloo. They wanted to make sure I was eating good food and not eating out a lot <3. 
