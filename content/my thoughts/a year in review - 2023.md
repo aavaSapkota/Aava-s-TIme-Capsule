@@ -1,3 +1,10 @@
+---
+title: a year in review - 2023
+draft: false
+tags: 
+    - my-thoughts
+---
+
 I was feeling inspired by [Rebecca’s End of year review](https://rebeccalai.substack.com/p/things-ive-failed-at-this-year?r=253a0w&utm_campaign=post&utm_medium=web), so here is mine :) – 
  
 As the year comes to an end, I think it’s important to reflect on the wins, losses, and moments in between. Given the state of the world, and my own recent battle with seasonal apathy, ending this year feels somewhat grim, but I am determined to push myself to pursue new thought cycles of optimism in the new year. Now that I’m turning 20 in March, I want to dive into the ice water of uncertainty headfirst, because as the buffalo know, the quickest way through the storm, is to run towards it. In this spirit, here are my wins, losses, and moments in between of this year: 

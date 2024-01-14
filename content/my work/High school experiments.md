@@ -1,3 +1,10 @@
+---
+title: High school Experiments
+draft: true
+tags: 
+    - my-work
+---
+
 # Independent Study Project (ISP)
 
 [## Escape Room ](https://github.com/aavaSapkota/EscapeRoom)
