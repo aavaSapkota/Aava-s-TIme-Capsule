@@ -18,12 +18,13 @@ TLDR: summeries of below on my [resume](https://drive.google.com/file/d/1mf_8wP-
 - ecobee
 - Project Metropolis
 - ACED (extinct)
+- Kuris
 
 #### Projects
 - [Navcare](https://devpost.com/software/navcare): A shift route optimizer for Personal Support Workers, aiming to address daily time lost in commute Personal 
-- [Water Wheel]()
-- [Knit]()
-- [Tora]()
+- [Water Wheel](https://devpost.com/software/water-wheel): A water sensor system to help individuals keep better track of their water consumption
+- [Knit](devpost.com/software/knit): A video calling app that connects older adults with each other to connect and make new friendships! (Older adult omegle but more monitored and moderated)
+- [Tora](https://devpost.com/software/tora-70zn3e): Information app that connects grassroots activits with new activists to help onboard them onto movements effectively, trying to minimize the amount of misinformation spread on social media. 
 
 
 ### Curiosities 💭
