@@ -19,7 +19,6 @@ As the year comes to an end, I think it’s important to reflect on the wins, lo
 - Tried a boxing class this year!
 - Tried Kendo and won 3rd place at the end of term beginners tournament!  
 - Got to read a bunch of cool papers about Participatory Design in Older Adult studies and conduct a systematic review on a paper!
-- Finished 1B with a cumulative GPA of 85!! 
 - Made a full product prototype for Intellijoint Surgical at the end of my co-op term! 
 - Continued working on Navcare, and got in contact with Aman from Gotcare!! 
 - Running again for the first time outside in forever!! + making a Strava account 
