@@ -37,6 +37,7 @@ TLDR: summeries of below on my [resume](https://drive.google.com/file/d/1mf_8wP-
 ### Interests ✨
 I have a vivid appreication for the animation film medium and love watching animated films, tv shows, and other forms of media. If you are the same, and have some reccomendations, please reach out! Here are some of my favorite works so far: 
 - [Fernanda Dias Artwork](https://www.youtube.com/@fernandadiasartwork)
+- One Day - Netflix Series
 - Blue Eye Samurai
 - Arcane
 - Violet Evergarden
@@ -59,7 +60,6 @@ Meet some of my friends...
 - [Diana Lin](https://lindiana.ca/)
 - [Steven Guikal](https://fluix.one/)
 - [Celeste Luo](https://dulldesk.github.io/)
-- [Anson Yu](https://ansonyu.me/)
 
 <!-- 
 This is a blank Quartz installation.
