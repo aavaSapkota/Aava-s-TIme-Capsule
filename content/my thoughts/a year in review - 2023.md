@@ -10,8 +10,8 @@ I was feeling inspired by [Rebecca’s End of year review](https://rebeccalai.su
 As the year comes to an end, I think it’s important to reflect on the wins, losses, and moments in between. Given the state of the world, and my own recent battle with seasonal apathy, ending this year feels somewhat grim, but I am determined to push myself to pursue new thought cycles of optimism in the new year. Now that I’m turning 20 in March, I want to dive into the ice water of uncertainty headfirst, because as the buffalo know, the quickest way through the storm, is to run towards it. In this spirit, here are my wins, losses, and moments in between of this year: 
 
 ## Wins: 
-- I learned and arranged a choreography based on these two dances ([1](https://youtu.be/rCFEvVS9S9k?si=P5V006ac-qNDsiC4) and [2](https://youtu.be/eq5mbWgrA7g?si=EaBh1EFyV3_ETsap))  to perform at Sushim’s Barthabanda! Practiced for a month and did well at the performance, yay! Here is the video: ____
-- Finally finished Atomic Habits, They both Die at the end, and read Kaikeyi, enjoyed the books. List of my reviews ____
+- I learned and arranged a choreography based on these two dances ([1](https://youtu.be/rCFEvVS9S9k?si=P5V006ac-qNDsiC4) and [2](https://youtu.be/eq5mbWgrA7g?si=EaBh1EFyV3_ETsap))  to perform at Sushim’s Barthabanda! Practiced for a month and did well at the performance, yay!
+- Finally finished Atomic Habits, They both Die at the end, and read Kaikeyi, enjoyed the books.
 - Finished my first and second co-op with Excellent ratings!
 - Was a Socratica session host, and got to host with some of the most insane and cracked people I know, love you all sm <3 (@brayden, @jake, @Binal, @Chris) 
 - Was a Co-Chair for Socratica Symposium, and ran that pretty smoothly! 
