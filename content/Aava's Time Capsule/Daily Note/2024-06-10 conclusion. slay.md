@@ -1,5 +1,0 @@
-I figured out what I want. I wanted to seriously try. I shouldn't have confessed. I feel more lost and sad now. I know he's just a guy and still prolly toxic, but i just feel stuck and stupid. Oh well. I don't know if he ment it to just be friends. Oh well. I have to stop checking if. whatever. I am at work and have so much stuff todo. I think I want to go home and cry. Just for a bit, to let out this pent up energy. Then after I'll calm down finish the stupid post and then go to the gym. 
-
-
-
-YO. i think i just got better momentarily. Cause, I'm thinking, like, i've made my intention clear. If he talks to me, he'll know that i feel a certian way so he'll only talk to me super casually if he feels the same way or like whatever. I at least won't need to think about it for a really long time!! AHAHAHA SLAY i'm free bruh. I feel like i've moped enough god damn. I need to go back to the gym and build my knee strength back fr. 
