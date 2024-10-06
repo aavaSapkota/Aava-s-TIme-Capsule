@@ -19,3 +19,11 @@ Verses that make me physically cringe:
 Every experience you've had, someone else can relate to. That doesn't make you unoriginal, that gives you a partner in crime who's felt the same things as you have. 
 
 I like stating the obvious, because sometimes I forget the obvious.
+
+
+----
+It's June 2024, and I'm taken back to when I liked sumedh. I have been listening to Niki's Nicole album for way too long and I need to get it out of my head. so i'm going to just write. 
+
+Favourite lyrics from the album: 
+
+- "yeah we were something-- to bad we were children" - Before

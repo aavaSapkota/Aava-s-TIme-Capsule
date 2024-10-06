@@ -1,0 +1,4 @@
+
+Sitting in my chair, I feel a sense of longing. I keep running through my head I would say if I told them what I was doing here. I'm here for a favour, and yet I feel a profound sense of ownership towards my role. I tend to get that way for most of my work. It gets personal. So fast. It's at events like this that I tend to get the itch to make for some reason. Maybe because it's so time bound, or maybe it's the subtle prestiege. It's like half assing a startup almost. Giving yourself just enough time to make a project, pitching it, and then calling it a day and sending it to the back of your github repo. 
+
+s
