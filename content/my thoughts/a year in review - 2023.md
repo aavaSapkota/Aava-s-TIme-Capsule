@@ -51,11 +51,7 @@ As the year comes to an end, I think it’s important to reflect on the wins, lo
 - Momo nights, leading to late night conversations with old and new friends 
 - Feeling uncomfortable in my skin and being ok with that
 - Spending so much money at Oh Hime, and Gong cha, they have my soul and wallet ☠️
-- Running Thanksgiving with my Nepali family friends living in Kitchener, Waterloo, and Guelph. Loved to reunite with them all, and gave me a warm fuzzy feeling 😌
-
-Looking back, here are some of the major lessons I want to remember from this year: 
-
-With these in mind, going forward  
+- Running Thanksgiving with my Nepali family friends living in Kitchener, Waterloo, and Guelph. Loved to reunite with them all, and gave me a warm fuzzy feeling 😌 
 
 Last but not least, I want to make a list of people I’m grateful for that brought me to my highs and helped me through my lows. A strong antidote to dissatisfaction is gratitude, so to wash away any disappointments of the year, and to remind myself of the amazing and wonderful forces out there, I’d like to say thank you to 
 
